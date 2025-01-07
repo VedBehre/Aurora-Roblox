@@ -1,6 +1,6 @@
 
 
-## Aurora redefines the Roblox gaming experience, offering advanced script execution with speed, style, and security. Whether you're a casual player or a seasoned scripter, Aurora has everything you need to take your gameplay to the next level.  
+## 🚀 **Aurora redefines the Roblox gaming experience, offering advanced script execution with speed, style, and security. Whether you're a casual player or a seasoned scripter, Aurora has everything you need to take your gameplay to the next level.** 
 
 
 ## 🔥 **Features That Set Aurora Apart**  
